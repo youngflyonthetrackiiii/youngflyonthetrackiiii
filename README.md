@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @youngflyonthetrackiiii
 - 👀 I’m interested in young flys on the track
 - 🌱 I’m currently learning abt young flys on the track
-- 💞️ I’m looking to collaborate on starving ethiopian piglets
+- 💞️ I’m looking to collaborate on young flys on the track
 - 📫 How to reach me; 911
 
 <!---
